@@ -19,6 +19,6 @@ One day when spikey be a daddy ah...
 Playing truant to see snow (best yr of my life)
 not to scare you ah...but
 This guy ah got 69%
-You all better do your work tomorrow i punish ah, tomorrow:u all better do ur work the next day u all have to stand up (the next day) forgets abt eerything she said yesterday.
+You all better do your work tomorrow i punish ah, tomorrow:u all better do ur work the next day u all have to stand up (the next day) forgets abt everything she said yesterday
+(Google Meet) silence...Hello?
 We buy snacks for you not cheap hor Joel. Next time dont give you
-One fraction on the left, one fraction on the right.
