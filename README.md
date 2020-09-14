@@ -3,6 +3,7 @@ No ark, no mark
 This one hot favourite
 Die die must do ah
 You all are future MPs of Singapore
+(Idea used by Wynne Er, 1G)
 One more time ah, I'm gonna tie you to the chair with the paracord.
 Boys ah your hair/handwriting liddat how to court girls ah, must write love letter one leh.
 My husband teach me EQ
@@ -17,8 +18,11 @@ Classy pot -> Clarissa
 Can someone tell me...
 One day when spikey be a daddy ah...
 Playing truant to see snow (best yr of my life)
+(Idea used by Wynne Er, 1G)
 not to scare you ah...but
 This guy ah got 69%
-You all better do your work tomorrow i punish ah, tomorrow:u all better do ur work the next day u all have to stand up (the next day) forgets abt everything she said yesterday
-(Google Meet) silence...Hello?
+You all better do your work tomorrow i punish ah, tomorrow:u all better do ur work the next day u all have to stand up (the next day) forgets abt eerything she said yesterday.
+(Idea used by Wynne Er, 1G)
 We buy snacks for you not cheap hor Joel. Next time dont give you
+How to carry 90kg of marshmallows... Later the marshmallows carry me, not I carry them leh...
+(Idea suggested by Wynne Er, 1G)
